@@ -1,1 +1,1 @@
-sorry I quit this project because you can just use archinstall
+sorry I stoped working on this project
